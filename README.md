@@ -1,1 +1,3 @@
 # 4-23_MaratovMeiirzhan
+
+https://www.figma.com/design/kJn5OFi7qV3QlH45WpDAqs/Doggy?node-id=0-1&t=XO2DliDRYqw09f3P-1
